@@ -1,0 +1,367 @@
+===== Truyện 3 =====
+
+Iliukha 
+
+_I_
+
+Chuyện ấy bắt đầu từ chuyến đi săn gấu. 
+
+Bà Đaria hái củi trong rừng, lạc sâu tới chỗ nghẽn và 
+suýt sa vào hang gấu. Bà Đaria thật táo bạo - bà ta để 
+thằng cu con đứng ngay gần đó, rồi ù té chạy về bản. Tới 
+bản, trước hết bà xộc vào nhà Tơrơphim Nhikichít. 
+
+- Ông chủ có nhà không? 
+
+- Có, 
+
+- Tôi vừa lạc tới hang gấu. Nếu ông hạ được nó, ta sẽ 
+
+chia nhau. 
+
+Tơrơphim Nhikichít nhìn bà ta từ chân lên đầu, rồi 
+từ đầu xuống chân và nói với vẻ ngờ vực. 
+
+- Bà không ớm ờ đấy chứ? Dẫn tôi đi, bà sẽ có phần. 
+
+Họ đã tập trung và lên đường. Đaria lạch bạch đi 
+trước. Tơrơphim cùng cậu con trai Ilia theo sau. Nhưng rồi 
+xôi hỏng bỏng không: họ dụ được con gấu có cái bụng xệ 
+
+lên khỏi hang, bắn sát, nhưng chẳng rõ vì bắn tồi hay còn 
+vì lý do bí ẩn nào khác nữa mà họ đã để sống con thú, 
+Tơrơphim Nhikichít ngắm nghía mãi khẩu súng kíp dòng 
+tộc của mình, cất tiếng chửi đồng hồi lâu, liếc nhìn Ilia 
+đang nhếch mép cười, cuối cùng ông ta nói: 
+
+- Không thể để sống con thú được. Phải ngủ lại trong 
+
+rừng thôi. 
+
+Đến sáng thì họ biết con gấu cái đã đi qua khu rừng 
+thông non mọc lớm chởm về hướng đông, tới cánh rừng 
+Gơlinhisép. Những vết chân chằng chịt in rõ trên lớp tuyết 
+đầu mùa; Tơrơphim cùng với con trai lần theo những vết 
+chân đó đã hai ngày đêm. Hai cha con phải chịu rét, chịu 
+đói - thức ăn sang ngày hôm sau đã cạn, - và phải mất ba 
+ngày đêm mới hạ được con gấu cái. Nó bị chộp bất ngờ 
+dưới gốc cây bạch dương đứng cô đơn, ủ rũ trên bãi cỏ rộng 
+giữa rừng. Lúc này Tơrơphim Nhikichít mới vừa nhìn Ilia 
+đang lăn cái thân gấu nặng mười bảy pút, và lần đầu tiên 
+bảo con: 
+
+- Mày thế mà khoẻ đấy, con ạ... Phải kiếm vợ cho 
+
+mày thôi. Bố đã tuổi già sức yếu, không thể săn gấu được 
+nữa và bắn cũng không chính xác, bố cứ hay chảy nước 
+mắt. Con thấy không, trong bụng con thú có lũ gấu con nối 
+dõi đấy... Và con người ta cũng có nghĩa vụ như thế. 
+
+Ilia cắm con dao bê bết máu xuống tuyết, hất mớ tóc 
+ướt đẫm mồ hôi lên khỏi trán, nghĩ bụng: 
+
+- Ôi, lại bắt đầu... 
+
+Chuyện khởi đầu từ đấy. Ngày này qua ngày khác, bố 
+mẹ Ilia càng thúc ép anh kiên quyết hơn: hết lấy vợ, lại 
+
+lấy vợ, nào là đến tuổi rồi, mẹ đã già không làm lụng được 
+cần có cô chủ trẻ để giúp đỡ mẹ già... và những lời lẽ khác 
+đại loại như thế. 
+
+Ilia ngồi trên bệ bếp lò, thở phì phò và lặng thinh, rồi 
+sau đó quá vì chán ngán, anh phải giấu bố mẹ già, lén lút 
+bỏ chiếc cưa vào bao, khâu lại, cầm rìu và mấy thứ đồ 
+nghề làm mộc khác sửa soạn lên đường, cũng chẳng phải 
+đi đâu, mà là tới thủ đô, đến nhà ông bác Ephim bán hàng 
+tại quầy bánh mì thuộc "Cửa hàng nông phẩm Moskva." 
+
+Mà bà mẹ thì vẫn không chịu từ bỏ ý định của mình: 
+
+- Mẹ nhắm cho con một đám rồi đấy, Ilia ạ. Chắc con 
+
+sẽ thấy cô bé ấy xinh đẹp và vừa ý mình. Y như quả táo 
+chín mọng ấy. Nó biết làm ruộng, lại biết ăn nói khéo léo 
+với khách nữa. Phải ăn hỏi cho con, kẻo người ta nẵng tay 
+trên mất. 
+
+Mọi người làm cho anh phát ốm, phát phiền. Anh 
+không muốn lấy vợ tí nào, vả lại ở vùng này thực ra chẳng 
+có cô gái nào lọt mắt anh, cả đến bản làng quanh đây, anh 
+cũng chẳng tìm được cô nào vừa ý. Khi biết mọi người 
+muốn dạm con gái lão chủ hiệu Phêđingin cho anh - thì 
+anh thật sự phát cáu lên. 
+
+Sáng dậy, sau khi ăn lót dạ qua quít, anh từ biệt 
+những người thân và cuốc bộ ra ga. Lúc chìa tay, bà mẹ 
+khóc thút thít, còn ông bố thì chau đôi mày đã bạc trắng, 
+nói giọng hằn học bực tức: 
+
+- Ilia, mày thích ngao du, thì mày đi đi, nhưng đừng 
+
+ngó ngàng về cái nhà này nữa. Tao biết mày ăn phải bả 
+của bọn Kômxômôn rồi, lúc nào cũng thậm thụt với bọn 
+
+khốn kiếp ấy. Vậy thì mày muốn sống sao mặc xác mày, 
+còn tao từ nay y hết trách nhiệm với mày rồi... 
+
+Ông đóng sập cửa lại sau lưng đứa con trai, ngó qua 
+cửa sổ nhìn Ilia bước đi trên con đường rộng, thẳng tắp, và 
+vừa lắng nghe tiếng khóc thút thít giận dỗi của bà già, ông 
+vừa cau mặt, thở dài thườn thượt. 
+
+Còn Ilia đã ra khỏi làng, anh ngồi xuống bên bờ con 
+mương nhỏ và cất tiếng cười. nhớ đến Naxchia - cô dâu đã 
+được dạm hỏi cho mình. Cô ta giống hệt một nữ tu sĩ, môi 
+mím chặt nham hiểm, lúc nào cũng thở dài và làm dấu 
+thánh y như một bà lão cổ lỗ sĩ. Cô ta không bỏ buổi đi lễ 
+nào, còn người ngợm thì như cục bột nhào đã lên men. 
+
+
+_II_ 
+
+
+Moskva khác hẳn Cuxtroma. Ban đầu, mỗi tiếng còi 
+ôtô cũng làm Ilia sợ hãi, anh rùng mình khi nhìn thấy 
+chiếc xe điện chạy xình xình rồi sau quen đi. Ông bác 
+Ephim xin được cho anh làm nghề mộc... Một đêm, đi làm 
+về muộn, anh bước trên đường phố Pơlinsikha dưới dãy 
+đèn treo lắp kính vàng im ắng. Để rút ngắn đường, anh rẽ 
+vào một ngõ vắng ngoằn ngoẻo và đến gần một cổng ngõ, 
+anh nghe có tiếng kêu nghẹn ngào, tiếng giậm chân và 
+tiếng bạt tai. Ilia rảo bước nhìn qua khe cổng đen ngòm: 
+một gã cà lơ say rượu mặc áo bành tô cổ lông cừu đang 
+sàm sỡ chặn một phụ nữ ngay cạnh bức tường vòm ẩm 
+ướt. Hắn vừa thở hển hển, vừa nói thều thào... 
+
+- Thôi... xin cô em yêu quý. Thời đại bây giờ chuyện 
+
+thế này là thường. Hạnh phúc thoảng qua mà. em ạ... 
+
+Ilia nhìn thấy phía sau cái cổ áo lông cừu chiếc khăn 
+đỏ và đôi mắt thiếu nữ đẫm lệ, đầy nỗi khiếp sợ. ghê tởm. 
+
+Ilia bước tới gần gã say rượu, xoè bàn tay ra túm lấy 
+chiếc cổ áo lông cừu và quật cả cái thân xác mềm nhũn 
+của hắn vào tường. Gã say rượu kêu oái lên, hự một tiếng, 
+giương cặp mắt lừ đừ như mắt bò đực nhìn chằm chằm Ilia 
+và bắt gặp đôi mắt dữ tợn long lên sòng sọc của anh, hắn 
+quay đi, vừa vấp ngã lảo đảo vừa ngoái cổ lại nhìn, bỏ 
+chạy theo lối ngõ. 
+
+Cô gái chít khăn đỏ và mặc chiếc áo dạ đã sờn bíu 
+chặt lấy tay áo Ilia. 
+
+- Cảm ơn đồng chí. Cảm ơn lắm lắm! 
+
+- Vì sao hắn ức hiếp cô? - Ilia hỏi, đứng đối hết từ 
+
+chân này lại sang chân kia, vẻ ngượng nghịu. 
+
+- Thằng say rượu khốn kiếp... Nó cứ bám tôi. Tôi 
+
+không nhìn rõ mặt nó... 
+
+Cô gái dúi vào tay anh mảnh giấy ghi địa chỉ của 
+mình, và trên đường đi đến quảng trường Dubốpxkaia cô 
+ta nhắc đi nhắc lại: 
+
+- Rỗi rãi mời đồng chí lại chơi nhé. Tôi sẽ rất mừng 
+
+được gặp lại. 
+
+
+_III_ 
+
+
+Vào một ngày thứ bảy, Ilia đến thăm cô ta, anh đi lên 
+tầng sáu, dừng lại bên cánh cửa đã tróc sơn có biển đề - 
+"Anna Bôđơrakhina"; trong bóng tối anh quờ tay lần quả 
+đấm và gõ cửa một cách thận trọng. Cô gái đích thân ra 
+mở, đứng ở ngưỡng cửa, nheo mắt nhìn ngỡ ngàng, rồi 
+nhận ra khách, nhoẻn cười. 
+
+- Mời anh vào, anh vào đi. 
+
+Cố giấu vẻ ngượng ngùng, Ilia ngồi xuống mép ghế, e 
+dề ngó quanh, giằn từng tiếng nặng nề, cộc lốc đáp lại các 
+câu hỏi: 
+
+- Thợ mộc... ở Cuxtroma... tôi tới đây tìm việc làm... 
+
+Tôi hăm mốt tuổi. 
+
+Đến khi anh buột miệng nói rằng anh chạy trốn việc 
+cưới xin và trốn cô dâu hay cầu kinh, thì cô gái phá lên 
+cười, trở nên thân mật hơn: 
+
+- Anh kể đi, anh kể đi nào. 
+
+Nhìn khuôn mặt ửng hồng đỏ bừng lên vì cười, Ilia 
+cũng phá lên cười, vụng về vung tay, kể lể một thôi một 
+hồi đủ thứ chuyện, và cả hai cùng ngắt câu chuyện bằng 
+những tràng cười giòn rã tươi vui như mùa xuân. Từ đấy 
+anh thường hay lui tới nơi đây. Căn phòng nhỏ với những 
+bức tường dán giấy hoa đã bạc màu và bức ảnh Ilích^1 trở 
+
+nêu rất đỗi thân thuộc với anh. Sau giờ làm việc, anh chỉ 
+muốn được đến ngồi bên cô gái, nghe câu chuyện bình dị 
+về Ilích^1 và ngắm nhìn đôi mắt xám, trong xanh của cô ta, 
+
+Đường sá trong thành phố ngập ngụa bùn mùa xuân, 
+Có lần từ nơi làm việc anh ghé thẳng tới đây, đặt bộ đồ 
+mộc xuống cạnh cửa, tay đưa lên nắm quả đấm và bỗng 
+lạnh toát người. Trên cánh cửa có dán một mẩu giấy với 
+nét chữ nghiêng nghiêng quen thuộc: “Tôi đi công tác một 
+tháng ở Ivanovo Voznesensk." 
+
+Anh bước xuống thang gác, mắt nhìn vào những nhịp 
+cầu thang đen tối. Lòng anh buồn rười rượi. Anh nhẩm 
+tính còn chừng bao ngày nữa cô gái trở về, và càng gần cái 
+ngày mong mỏi ấy bao nhiêu, anh càng nóng lòng sốt ruột 
+bấy nhiêu. 
+
+Ngày thứ sáu anh không đi làm, từ sáng chưa ăn 
+uống gì, anh đã đến ngõ phố quen thuộc ngào ngạt mùi 
+thơm tươi mát của rặng thuỷ dương đang trổ hoa; anh liếc 
+mắt nhìn theo mỗi chiếc khăn đỏ mà anh bắt gặp. Trước 
+lúc trời tối, anh nhìn thấy cô gái từ trong ngõ đi ra. Không 
+tự chủ được, anh chạy bổ lại đón cô. 
+
+
+_IV_ 
+
+
+Lại những buổi chiều tối được ở bên cô gái - tại nhà 
+riêng hay trong câu lạc bộ Kômxômôn. Cô ta dạy Ilia đánh 
+vần từng chữ, rồi dạy viết. Cây bút trong tay Ilia cứ run 
+rẩy như ngọn lá liễu hoàn diệp, vẩy những giọt mực xuống 
+mặt giấy; chỉ vì chiếc khăn đỏ ghé sát xuống mặt anh, mà 
+
+trong đầu Ilia dường như có cái bễ lò rèn đang thổi lửa đều 
+đặn và nóng bỏng ở ngay hai bên thái dương. 
+
+Cây bút nằm giữa mấy ngón tay cứ nhảy nhót, những 
+nét chữ nom bè bè, gù gù như chính bản thân Ilia, còn 
+trong ánh mắt có một làn sương mờ che phủ... 
+
+Một tháng sau, Ilia nộp đơn cho bí thư chi đoàn của 
+ban kiến thiết, xin gia nhập ĐTNCSLN^2 - một lá đơn 
+không bình thường, tự tay Ilia viết, với những hàng chữ 
+xiêu vẹo ngoằn ngoèo chạy trên mặt giấy như những vỏ 
+bào xun ra dưới lưỡi bào. 
+
+Và sau một tuần, vào buổi chiều, gặp anh bên cửa toà 
+nhà sáu tầng tĩnh mịch, Anna reo to vui sướng: 
+
+- Chào đồng chí đoàn viên Kômxômôn Ilia... 
+
+
+_V_ 
+
+
+- Này anh Ilia, đã hai giờ khuya. Đến giờ anh phải về 
+
+nhà rồi. 
+
+- Gượm tí đã, hay cô sợ mất ngủ? 
+
+- Đã đêm thứ hai tôi không được ngủ, Ilia, anh về đi. 
+
+- Ngoài đường bẩn lắm. Ở nhà thì bà chủ la ó: "La cà 
+
+kỳ thế, tôi đâu có phận sự hết mở cổng lại đóng cổng 
+xoành xoạch cho các anh..." 
+
+- Vậy anh về sớm đi, đừng ngồi đến tận nửa đêm 
+
+nữa. 
+
+- Hay là cô có chỗ nào... ngủ lại đêm, được không? 
+
+Anna đứng lên khỏi bàn, quay lưng lại phía đèn, Nếp 
+nhăn nằm chếch, vắt ngang trên trán như cái rãnh nhỏ. 
+
+- Thế này nhé, anh Ilia... nếu anh định sán đến gần 
+
+tôi, thì mời anh đi khỏi đây ngay. Mấy ngày gần đây tôi 
+thấy anh muốn gì rồi. Anh cũng nên biết là tôi đã có 
+chồng. Chồng tôi là Ivanovo Voznesensk đã bốn tháng 
+nay và vài hôm nữa tôi sẽ đến chỗ anh ấy. 
+
+Cặp môi Ilia như bị phủ một lớp tro. 
+
+- Cô đã có... ó chồ... ồng? 
+
+- Vâng, tôi sống với một đoàn viên Kômxômôn. Tôi 
+
+tiếc là không nói với anh điều đó sớm hơn. 
+
+Đã hai tuần, Ilia không đi làm. Anh nằm trên 
+giường, mặt phị ra xanh lướt. Sau đó có lần anh đứng 
+dậy, lấy ngón tay sờ vào cái lưỡi cưa đã han gỉ và nhếch 
+miệng cười gượng. 
+
+Khi anh đến làm việc, anh em trong chi đoàn hỏi dồn 
+dập: 
+
+- Cậu bị bệnh gì thế? Iliukha, trông cậu như người 
+
+chết mới sống lại. Sao cậu xanh xao thế này? 
+
+Ở hành lang câu lạc bộ, anh bắt gặp bí thư chi đoàn. 
+
+- Cậu Ilia đấy à? 
+
+- Tôi đây. 
+
+- Đi đâu, lâu nay không thấy cậu? 
+
+- Tôi bị ốm... không hiểu sao cứ đau đầu. 
+
+- Ta được cử một người đi học lớp nông nghiệp, cậu 
+
+đồng ý đi chứ? 
+
+- Tôi phải cái chữ nghĩa tồi quá... Không thì cũng 
+
+muốn đi... 
+
+- Thôi đừng có tự ti! Ở đó cậu sẽ qua lớp dự bị chắc 
+
+chắn sẽ học được... 
+
+Một tuần sau, vào buổi chiều, Ilia đang từ nơi làm 
+việc đến lớp học thì nghe có tiếng gọi ở phía sau: 
+
+- Anh Ilia! 
+
+Anh ngoái cổ lại: cô ấy, Anna đang đuổi kịp anh và 
+mỉm cười từ xa. Cô xiết chặt tay anh. 
+
+- Anh sống thế nào? Nghe nói anh được đi học phải 
+
+không? 
+
+- Bình thường cô ạ, tôi vừa làm, vừa học. Cảm ơn cô 
+
+đã dạy chữ cho tôi. 
+
+Anh đi cạnh cô gái, nhưng bây giờ ở gần chiếc khăn 
+đỏ, anh không còn thấy đầu choáng váng nữa. Trước lúc 
+chia tay, Anna vừa mỉm cười nhìn đi chỗ khác, vừa hỏi: 
+
+- Thế còn cái bệnh kia đã khỏi chưa? 
+
+- Tôi đang học cách bảo vệ đất khỏi các loại bệnh 
+
+khác nhau, nhưng còn cái bệnh kia... - anh phẩy tay, 
+chuyển bộ đồ mộc từ vai phải sang vai trái vừa mỉm cười 
+vừa tiếp tục bước đi - trông nặng nề và lúng túng. 
+
+
+TRẦN VĨNH PHÚC dịch
+
+---
+1 Tức là Vơladimir Ilích Lênin.
+2 Đoàn thanh niên Cộng sản Leninist mang tên Lênin.
